@@ -1,0 +1,2 @@
+# kurd
+be strong
